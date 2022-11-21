@@ -1,4 +1,4 @@
-# Me-in-life
+# YURI POGI
 About me
 
 ---
