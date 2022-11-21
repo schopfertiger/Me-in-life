@@ -1,4 +1,4 @@
-# YURI POGI
+# YURI POGI.github.io
 About me
 
 ---
